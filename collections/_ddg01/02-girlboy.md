@@ -18,7 +18,7 @@ The German was surprised by such a completely un-ladylike dream. Her parents jus
 
 In school, Selma was still had problems, except in gymnastics.
 
-Fall came, and with it those eerie weeks in which rumors stirred in Poland of the quick collapse of the glorious German guns. One day, Selma's parents spoke with a neighborhood guest about the coming New Order in Europe.
+Fall came, and with it those eerie weeks in which rumors stirred in Poland of the quick collapse of the glorious German guns. One day, Selma's parents spoke with their guest about the coming New Order in Europe.
 
 "Are you going to give us back Poznań?" asked the father. The daughter, who was sitting on the branch of an apple tree, heard the words, slid down, and with fiery eyes said to the three, "just Poznań? We're going to get all the land that was ever Polish. They'll draw a straight line from Wrocław to Szczecin and that'll be Germany's new border!"
 
@@ -46,7 +46,7 @@ A handsome guy, by the way, who would have broken her heart without fail if he c
 
 Just then the bell rang, and the surveyor rushed to the door. But those powerful eyebrows that almost reached the bridge of his nose seemed familiar.
 
-"You'll hardly recognize me," laughed the visitor. "Selma finally fulfilled her parents' wish and changed herself. Are you dull? Maybe you remember you once called me 'girlboy.' My mother thinks that you sensed the change I was going to go through two years ago. Until then I was considered one of the girls, even I thought I was one, albeit one of a kind. When we went swimming we compared our bodies. I was laughed at because I was so thin and angular, while the women showed off their swelling breasts. Until one day I fell in love with one. It was a great thing. I was chased out of school, written off as a criminal girl[^fn3]. I felt despicable and understood why my father would disown me. When Mother took me to a sanatorium, the truth came out. I was to become a "scientific case" studied by an expert. In short, only a simple operation was required and I would become a real man.
+"You'll hardly recognize me," laughed the visitor. "Selma finally fulfilled her parents' wish and changed herself. Are you dull? Maybe you remember you once called me 'girlboy.' My mother thinks that you sensed the change I was going to go through two years ago. Until then I was considered one of the girls. I thought I was one, albeit one of a kind. When we went swimming we compared our bodies. I was laughed at because I was so thin and angular, while the women showed off their swelling breasts. Until one day I fell in love with one. It was a great thing. I was chased out of school, written off as a criminal girl[^fn3]. I felt despicable and understood why my father would disown me. When Mother took me to a sanatorium, the truth came out. I was to become a "scientific case" studied by an expert. In short, only a simple operation was required and I would become a real man.
 
 Yes, you played a meaningful role in my life. If only because you took me seriously when I was being serious. So I couldn't pass through here without seeing you. I passed the test. Now I'm off to Zurich and later America. Nobody in Warsaw believes that I can build bridges!
 
