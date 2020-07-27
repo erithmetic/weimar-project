@@ -59,3 +59,5 @@ collections:
   ddg01:
     issue: "Issue 1 (May 1930)"
     output: true
+
+google_analytics: UA-172515450-1
