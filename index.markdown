@@ -12,6 +12,7 @@ The purpose of this project is to give a voice to these people, especially Germa
 <hr>
 
 <div class="toc">
+  <p><a href="/background">Background on Germany's queer history leading up to World War 2</a>.</p>
   <h2>Translated Collections</h2>
   <ul class="texts">
     <li class="text-title">
