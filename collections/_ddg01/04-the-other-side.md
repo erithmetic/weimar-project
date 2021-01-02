@@ -42,7 +42,21 @@ The following night, Olga couldn't sleep. Her fine, watchful soul flew for miles
 
 Heavy, colorful curtains dimmed the lights, floral vines from crown to crown, palms, scents and sweet sounds &mdash; and people beneath in bizarre and luxurious garb, who swung in rapturous dance with mystical smiles &mdash; &mdash; &mdash;
 
-"What am I doing here?" was her feeling at the time, "what are you to me in this hour?" And her dark eyes followed, in silent sadness, a tall, slender woman who carried her precious, deeply low-cut dress made of silver brocade with elegant grace through the surging throng. She saw a small, coquettish smile on the slender, sleek, lightly powdered face, felt every quiver of the naked, white shoulder and heard with inexplicably fine hearing the flattery paid to the beautiful woman &mdash; and her soul was drawn down into a deep pain &mdash; but she smiled.
+"What am I doing here?" was her feeling at the time, "what are you to me in this hour?" And her dark eyes followed, in silent sadness, a tall, slender woman who wore her precious, deeply low-cut dress made of silver brocade with elegant grace through the surging throng. She saw a small, coquettish smile on the slender, sleek, lightly powdered face, felt every quiver of the naked, white shoulder and heard with inexplicably fine hearing the flattery paid to the beautiful woman &mdash; and her soul was drawn down into a deep pain &mdash; but she smiled.
 
 She thought of Buddha, whose bronze image stood in a niche in front of a gold-embroidered curtain and gazed sliently and otherworldly into the vibrant ado. Buddha, whose exotic teaching they both loved so much, she and Hellmuth.
+
+"Are you what you seem? No, - none of this is you - you are something else - something deeper than that which looks can grasp - what eyes can see is not you - it just seems so."
+
+The words wandering through her mind at that moment went Something like that - and only slowly did she realize their true meaning. And when she understood him, her tender, pure soul had known: "It is your _you_, the noble and good, that loves everything deep within me &mdash; wounds shadows and strangeness, I love everything in you &mdash; and because of this I can smile at everything about you!" Since then her girded hands have been raised to draw a curtain in front of his whimsical activities every time he was over there, on the "Other Side," so that those who were ignorant or wicked could hurt him. &mdash;&mdash;
+
+But when she sat there in the night and thought of him, she felt as though she had to force herself to be near him in that hour that for a short time released him from the binding of manhood and revived his most secret longing&hellip;
+
+"Ah &mdash; the gracious woman --" she heard Rolf's sonorous organ say with a laugh and she saw how, in his sincere admiration of the elegant lady, whose curly blonde head was crowned with a magnificent tulle hat, kissed the outreached hand adorned in white leather gloves, while some gentlemen in tails earnestly entertained themselves with a young girl in a loose, red dress. &mdash;
+
+She knew how it was at Rolf's "intimate evenings," one lived, one breathed freely &mdash; and thus gained the strength, to keep playing one's role in existence &mdash; nothing other than that.
+
+And no thought of any injustice or infidelity found room in Mrs. Olga's wide soul.
+
+Everything was left behind him, as soon as he returned, it was blown away and forgotten &mdash; perhaps kept as the most sacred in the most secret shrine &mdash; and the man, he who proudly and energetically went into his office, his clever mind knew how to create something remarkable. The able, most capable civil servant, who at barely forty was already a councilor, was in no way like that creature "from the Other Side."
 
