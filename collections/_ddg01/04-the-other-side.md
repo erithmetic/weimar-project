@@ -90,4 +90,4 @@ He rose to say goodbye to his host. The consul took his cigar bag out of his tai
 
 The clouds of smoke curled, billowed, twisted into one another and thus wove a curtain behind which everything melted away, dreams, premonitions, conjectures &mdash; and just in front of the consul stood an entirely other world, as always in calm restraint &mdash; the solemn one, proper Mr. Councilor. &mdash;
 
-[^fn1] _Bester_, lit. "my best."
+[^fn1]: _Bester_, lit. "my best."
