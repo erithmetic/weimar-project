@@ -6,7 +6,7 @@ author: Mara Ruth
 
 _A Transgender Tale_
 
-Issue 1, article 4 (May 1930)
+[Das 3. Geschlect](/das-dritte-geschlecht/) Issue 1, article 4 (May 1930)
 
 Mrs. Olga looked down through the green hanging plants of the small winter garden down to the wide street. Walking down this street was her husband, Councilor Berndt, accompanied by some colleague.
 
