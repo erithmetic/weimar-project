@@ -60,3 +60,34 @@ And no thought of any injustice or infidelity found room in Mrs. Olga's wide sou
 
 Everything was left behind him, as soon as he returned, it was blown away and forgotten &mdash; perhaps kept as the most sacred in the most secret shrine &mdash; and the man, he who proudly and energetically went into his office, his clever mind knew how to create something remarkable. The able, most capable civil servant, who at barely forty was already a councilor, was in no way like that creature "from the Other Side."
 
+Consul Feidt's "Great Evening" drew to a close. Every bigwig in the city was invited, it was the official close of the season. Summer was coming soon and everyone would be traveling away for weeks and months.
+
+The stout consul, who, like his guest, Councilor Brendt, whom he always tried to lure out of his residence, had given the champagne in large quantities, sat with him in a cozy corner of the salon and had just told him about his latest adventures.
+
+"Did you travel again the day before yesterday, buddy? Did you experience something fine?" smiled the stout gentleman and winked suggestively.
+
+"How do you know that, Mr. Consul?" asked Berndt, whose dark blue eyes were already showing a dreamy glow.
+
+"Hassenberg saw you board the train, you rake - you see, nothing stays hidden here, my dear - we all know about your occasional mysterious journeys, but where - where? You should come clean to me!" he inquired in a crude familiarity.
+
+Then all the wine lowered Hellmuth's eyelids and he drew a strange smile around his soft mouth.
+
+As if under obligation, he bowed his head to his counterpart and extended his hand with an almost coquettish gesture as if for a kiss. His voice became low with a dreamy, tender sound and half-consciously he said:
+
+"I was on the Other Side &mdash; for one night &mdash; always just one delicious night &mdash; &mdash;" He suddenly jumped up, a hand was lightly around his shoulder and Olga was standing next to him. She seemed to have heard his whisper, for a moment she leaned her pale cheek against his, she said carefully to him:
+
+"You are not over there &mdash; you are here, Helmuth!"
+
+"Yes &mdash;" he replied with a heavy sigh of relief and took her hand, "we're going home!"
+
+He rose to say goodbye to his host. The consul took his cigar bag out of his tailcoat and held it out to Berndt.
+
+"You didn't smoke at all, my dear little Councilor - here, my extra strong ones - only for connoisseurs - smoke another one to quit!" he said, "and we'll talk more about it, won't we?" With her strange, cool smile, Olga looked back at the stout man. 
+
+"You would be the first to tear him from my throne, you smug and arrogant prick!" she thought and turned to her husband.
+
+"I'll allow you this one cigar, my love[^fn1] - then I would like to go home, I'm a little tired, as always, the Consul and his Wife have organized such a delightful party," she said amiably. Flattered, Feidt thanked her while Hellmuth reluctantly set the strong herb on fire and smoked only when it was necessary.
+
+The clouds of smoke curled, billowed, twisted into one another and thus wove a curtain behind which everything melted away, dreams, premonitions, conjectures &mdash; and just in front of the consul stood an entirely other world, as always in calm restraint &mdash; the solemn one, proper Mr. Councilor. &mdash;
+
+[^fn1] _Bester_, lit. "my best."
