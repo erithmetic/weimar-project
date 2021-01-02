@@ -42,4 +42,7 @@ The following night, Olga couldn't sleep. Her fine, watchful soul flew for miles
 
 Heavy, colorful curtains dimmed the lights, floral vines from crown to crown, palms, scents and sweet sounds &mdash; and people beneath in bizarre and luxurious garb, who swung in rapturous dance with mystical smiles &mdash; &mdash; &mdash;
 
-TO BE CONTINUED
+"What am I doing here?" was her feeling at the time, "what are you to me in this hour?" And her dark eyes followed, in silent sadness, a tall, slender woman who carried her precious, deeply low-cut dress made of silver brocade with elegant grace through the surging throng. She saw a small, coquettish smile on the slender, sleek, lightly powdered face, felt every quiver of the naked, white shoulder and heard with inexplicably fine hearing the flattery paid to the beautiful woman &mdash; and her soul was drawn down into a deep pain &mdash; but she smiled.
+
+She thought of Buddha, whose bronze image stood in a niche in front of a gold-embroidered curtain and gazed sliently and otherworldly into the vibrant ado. Buddha, whose exotic teaching they both loved so much, she and Hellmuth.
+
