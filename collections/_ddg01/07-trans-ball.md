@@ -26,7 +26,7 @@ also very well equipped with pictures, which appears on the first of the month f
 
 #### "Paper for Human Rights,"[^fn8]
 
-which in its 8th year appears regularly every month and sells in the street for 20 Pfg. per copy. I was certainly amazed and surprised at the content of this magazine. Homosexuality in men and women is dealt with in a clear, factual and relatable way. In addition, articles of war that oppose Paragraph 175[^fn9] of the Reich Criminal Code and demand its elimination. The Paper for Human Rights can be described as a really enlightening political organ, which primarily serves the liberation struggle of homosexuals, which is embodied in the Society for Human Rights.
+which in its 8th year appears regularly every month and sells in the street for 20 Pfg. per copy. I was certainly amazed and surprised at the content of this magazine. Homosexuality in men and women is dealt with in a clear, factual and relatable way. In addition, it contains articles of struggle that oppose Paragraph 175[^fn9] of the Reich Criminal Code and demand its elimination. The Paper for Human Rights can be described as a really enlightening political organ, which primarily serves the liberation struggle of homosexuals, which is embodied in the Society for Human Rights.
 
 [^fn1]: And by the way, _Die Freundin_ just happens to be published by the same publisher, Friedrich Radzuweit!
 [^fn2]: Ger. _Problem_
