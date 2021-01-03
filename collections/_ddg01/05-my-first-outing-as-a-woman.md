@@ -6,7 +6,7 @@ author: Hans Hannah Berg
 
 _The Adventures of a Trans Woman_
 
-[Das 3. Geschlect](/das-dritte-geschlecht/) Issue 1, article 5 (May 1930)
+[The Third Sex](/das-dritte-geschlecht/) Issue 1, article 5 (May 1930)
 
 The day was unforgettable for me, the first time I walked the streets as a woman. Long had I desired it and only experienced it in secret dreams. I had found a good friend to whom I was able to reveal what had slumbered inside me as a carefully guarded secret since childhood. With loving understanding, she was happy to help me fulfill my most secret wishes.
 

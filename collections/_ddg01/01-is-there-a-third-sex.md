@@ -4,7 +4,7 @@ title: "Is There a Third Sex?"
 author: Änne von den Eken
 ---
 
-[Das 3. Geschlect](/das-dritte-geschlecht/) Issue 1, article 1 (May 1930)
+[The Third Sex](/das-dritte-geschlecht/) Issue 1, article 1 (May 1930)
 
 We've always classified people into just two sexes. But for a number of years the term "third sex" has been appearing again and again[^fn1]. Thousands have used the phrase, joking off-hand, sneering, clueless of how much sorrow and suffering, how much struggle and despair lurks behind this term. Few know that "third sex" is not just a slur for male and female eccentrics, but that it has actually existed for thousands of years, yes, presumably it already existed on Earth before the other two sexes. There are scholars who want to prove that the first people were dual-sex, i.e. man and woman united in one person.
 

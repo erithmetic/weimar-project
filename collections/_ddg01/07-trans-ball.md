@@ -6,7 +6,7 @@ author: W. Kramer
 
 _Chat_
 
-[Das 3. Geschlect](/das-dritte-geschlecht/) Issue 1, article 7 (May 1930)
+[The Third Sex](/das-dritte-geschlecht/) Issue 1, article 7 (May 1930)
 
 A few months ago I strolled through the streets of Berlin again and looked at the newspaper kiosks at the new publications that had come out in the field of magazines. Then I discovered a magazine called 
 

@@ -33,13 +33,13 @@ This loss set the LGBT movement back by nearly 40 years until Stonewall. Luckily
 - **1928** - Nazis win less than 3% of the vote.
 - **1929** - A German parliament committee votes to repeal Paragraph 175. However, the repeal was never actually implemented due to the rise of the Nazis.
 - **October 1929** - Wall Street crash, the Great Depression begins
-- **May 1930** - Issue 1 of "Das 3. Geschlecht" published.
-- **September 1930** - Issue 2 of "Das 3. Geschlecht" published. Nazis win 18% of the vote.
-- **February 1931** - Issue 3 of "Das 3. Geschlecht" published.
+- **May 1930** - Issue 1 of [The Third Sex](/das-dritte-geschlecht) published.
+- **September 1930** - Issue 2 of [The Third Sex](/das-dritte-geschlecht) published. Nazis win 18% of the vote.
+- **February 1931** - Issue 3 of [The Third Sex](/das-dritte-geschlecht) published.
 - **June 1931** - Dora Richter, a resident at Hirschfeld's Institute, undergoes the first known transgender vaginoplasty in Berlin. She is followed that year by Lilli Elbe.
-- **July 1931** - Issue 4 of "Das 3. Geschlecht" published.
+- **July 1931** - Issue 4 of [The Third Sex](/das-dritte-geschlecht) published.
 - **1932** - The height of Weimar Germany's queer culture. Berlin had at least 5 clubs dedicated to trans customers.
-- **May 1932** - The final issue, 5, of "Das 3. Geschlecht" published.
+- **May 1932** - The final issue, 5, of [The Third Sex](/das-dritte-geschlecht) published.
 - **June 1932** - German artists and authors publish an "Urgent Call for Unity" to vote for the socialist and communist parties to prevent election of Nazi politicians.
 - **July 1932** - Nazis win 37% of the vote. Anti-democratic, conservative chancellor Franz von Papen uses emergency powers to dissolve Prussia's state government after riots and streetfighting between communists and Nazi paramilitary (SA) soldiers. The new Prussian government renews censorship and crackdowns on vice. Gay culture goes underground.
 - **November 1932** - Nazis win 33% of the vote.

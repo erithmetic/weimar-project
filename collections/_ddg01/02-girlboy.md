@@ -4,7 +4,7 @@ title: "Girlboy"
 author: M. Ludwig
 ---
 
-[Das 3. Geschlect](/das-dritte-geschlecht/) Issue 1, article 2 (May 1930)
+[The Third Sex](/das-dritte-geschlecht/) Issue 1, article 2 (May 1930)
 
 "Selma, enough already[^fn1]!" It happened every day when the child came home from playing with the boys in the suburbs, battered and scratched. Or when the teachers complained about her apathy and laziness at school. Her father said it in a stern tone, her mother with tender concern. "If you're not going to shape up, what's going to become of you?" In the square and angular features of her daughter, she searched in vain for any trace of feminine charm that could reassure her of her daughter's future. Streaky, dull black hair, ample, defiant eyebrows over a pair of small, slit eyes, long arms, and big hands. How would any man ever want to marry her?
 
