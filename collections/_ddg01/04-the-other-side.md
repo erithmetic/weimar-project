@@ -12,11 +12,11 @@ Mrs. Olga looked down through the green hanging plants of the small winter garde
 
 He walked briskly as he always did, stopped for a moment at his house, and said goodbye to the other person.
 
-She watered the little cacti, which were all planted in white, gold-rimmed pots. They gave Helmut so much joy. She then put the watering can back in the corner and returned to the living room, which was glowing in the first sunny afternoon in March.
+She watered the little cacti, which were all planted in white, gold-rimmed pots. They gave Hellmuth so much joy. She then put the watering can back in the corner and returned to the living room, which was glowing in the first sunny afternoon in March.
 
 Just then her husband opened the door, and when he stepped into the light she saw he was quite tired and weary. She held out her fine, pale hand to him, which he kissed, then she went into dining room and sat at the table.
 
-"Did you have a long day, Helmut?" she asked, looking searchingly into that narrow, beardless face with an energetically protruding nose, which didn't quite fit with his feminine mouth and chin. He shook his blonde head.
+"Did you have a long day, Hellmuth?" she asked, looking searchingly into that narrow, beardless face with an energetically protruding nose, which didn't quite fit with his feminine mouth and chin. He shook his blonde head.
 
 "I'm OK, dear, work is less busy, but I'm tired again &mdash; you know &mdash; well, yes &mdash; &mdash;" He broke off and Olga brushed his hand with a soft, almost motherly tenderness.
 
@@ -46,13 +46,13 @@ Heavy, colorful curtains dimmed the lights, floral vines from crown to crown, pa
 
 She thought of Buddha, whose bronze image stood in a niche in front of a gold-embroidered curtain and gazed sliently and otherworldly into the vibrant ado. Buddha, whose exotic teaching they both loved so much, she and Hellmuth.
 
-"Are you what you seem? No, - none of this is you - you are something else - something deeper than that which looks can grasp - what eyes can see is not you - it just seems so."
+"Are you what you seem? No, &mdash; none of this is you &mdash; you are something else &mdash; something deeper than that which looks can grasp &mdash; what eyes can see is not you &mdash; it just seems so."
 
-The words wandering through her mind at that moment went Something like that - and only slowly did she realize their true meaning. And when she understood him, her tender, pure soul had known: "It is your _you_, the noble and good, that loves everything deep within me &mdash; wounds shadows and strangeness, I love everything in you &mdash; and because of this I can smile at everything about you!" Since then her girded hands have been raised to draw a curtain in front of his whimsical activities every time he was over there, on the "Other Side," so that those who were ignorant or wicked could hurt him. &mdash;&mdash;
+The words wandering through her mind at that moment went Something like that &mdash; and only slowly did she realize their true meaning. And when she understood him, her tender, pure soul had known: "It is your _you_, the noble and good, that loves everything deep within me &mdash; wounds shadows and strangeness, I love everything in you &mdash; and because of this I can smile at everything about you!" Since then her girded hands have been raised to draw a curtain in front of his whimsical activities every time he was over there, on the "Other Side," so that those who were ignorant or wicked could hurt him. &mdash;&mdash;
 
 But when she sat there in the night and thought of him, she felt as though she had to force herself to be near him in that hour that for a short time released him from the binding of manhood and revived his most secret longing&hellip;
 
-"Ah &mdash; the gracious woman --" she heard Rolf's sonorous organ say with a laugh and she saw how, in his sincere admiration of the elegant lady, whose curly blonde head was crowned with a magnificent tulle hat, kissed the outreached hand adorned in white leather gloves, while some gentlemen in tails earnestly entertained themselves with a young girl in a loose, red dress. &mdash;
+"Ah &mdash; the gracious woman &mdash;&mdash;" she heard Rolf's sonorous organ say with a laugh and she saw how, in his sincere admiration of the elegant lady, whose curly blonde head was crowned with a magnificent tulle hat, kissed the outreached hand adorned in white leather gloves, while some gentlemen in tails earnestly entertained themselves with a young girl in a loose, red dress. &mdash;
 
 She knew how it was at Rolf's "intimate evenings," one lived, one breathed freely &mdash; and thus gained the strength, to keep playing one's role in existence &mdash; nothing other than that.
 
@@ -68,7 +68,7 @@ The stout consul, who, like his guest, Councilor Brendt, whom he always tried to
 
 "How do you know that, Mr. Consul?" asked Berndt, whose dark blue eyes were already showing a dreamy glow.
 
-"Hassenberg saw you board the train, you rake - you see, nothing stays hidden here, my dear - we all know about your occasional mysterious journeys, but where - where? You should come clean to me!" he inquired in a crude familiarity.
+"Hassenberg saw you board the train, you rake &mdash; you see, nothing stays hidden here, my dear &mdash; we all know about your occasional mysterious journeys, but where &mdash; where? You should come clean to me!" he inquired in a crude familiarity.
 
 Then all the wine lowered Hellmuth's eyelids and he drew a strange smile around his soft mouth.
 
@@ -76,17 +76,17 @@ As if under obligation, he bowed his head to his counterpart and extended his ha
 
 "I was on the Other Side &mdash; for one night &mdash; always just one delicious night &mdash; &mdash;" He suddenly jumped up, a hand was lightly around his shoulder and Olga was standing next to him. She seemed to have heard his whisper, for a moment she leaned her pale cheek against his, she said carefully to him:
 
-"You are not over there &mdash; you are here, Helmuth!"
+"You are not over there &mdash; you are here, Hellmuth!"
 
 "Yes &mdash;" he replied with a heavy sigh of relief and took her hand, "we're going home!"
 
 He rose to say goodbye to his host. The consul took his cigar bag out of his tailcoat and held it out to Berndt.
 
-"You didn't smoke at all, my dear little Councilor - here, my extra strong ones - only for connoisseurs - smoke another one to quit!" he said, "and we'll talk more about it, won't we?" With her strange, cool smile, Olga looked back at the stout man. 
+"You didn't smoke at all, my dear little Councilor &mdash; here, my extra strong ones &mdash; only for connoisseurs &mdash; smoke another one to quit!" he said, "and we'll talk more about it, won't we?" With her strange, cool smile, Olga looked back at the stout man. 
 
 "You would be the first to tear him from my throne, you smug and arrogant prick!" she thought and turned to her husband.
 
-"I'll allow you this one cigar, my love[^fn1] - then I would like to go home, I'm a little tired, as always, the Consul and his Wife have organized such a delightful party," she said amiably. Flattered, Feidt thanked her while Hellmuth reluctantly set the strong herb on fire and smoked only when it was necessary.
+"I'll allow you this one cigar, my love[^fn1] &mdash; then I would like to go home, I'm a little tired, as always, the Consul and his Wife have organized such a delightful party," she said amiably. Flattered, Feidt thanked her while Hellmuth reluctantly set the strong herb on fire and smoked only when it was necessary.
 
 The clouds of smoke curled, billowed, twisted into one another and thus wove a curtain behind which everything melted away, dreams, premonitions, conjectures &mdash; and just in front of the consul stood an entirely other world, as always in calm restraint &mdash; the solemn one, proper Mr. Councilor. &mdash;
 
