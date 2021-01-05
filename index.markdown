@@ -27,5 +27,10 @@ The purpose of this project is to give a voice to these people, especially Germa
         The Third Sex (<i>Das 3. Geschlecht</i>)
       </a> - a magazine for and by the trans community
     </li>
+    <li class="text-title">
+      <a href="/about">
+        About this site
+      </a>
+    </li>
   </ul>
 </div>
