@@ -30,7 +30,7 @@ This loss set the LGBT movement back by nearly 40 years until Stonewall. Luckily
 - **May 1871** - The newly established German Empire enacts Paragraph 175 of the German Criminal Code, which outlaws homosexual acts.
 - **1910** - Magnus Hirschfeld, a gay physician and sexologist, publishes _Die Transvestiten_, a seminal work that scientifically describes what we now call transgender individuals.
 - **Nov 1918** - Germany forms the "Weimar Republic" to replace the German Empire which was defeated in World War I. It is Germany's first democratic government. Immediately following, The German state of Prussia (which includes Berlin) choses not to enforce Paragraph 175. Prussia was the center of progressive politics in Germany.
-- **Nov 1918 - Feb 1919** - The short-lived, communist People's State of Bavaria is formed amid the chaos of the revolution. It's suppressed by German nationalists.
+- **Nov 1918 - Feb 1919** - The short-lived, socialist People's State of Bavaria is formed amid the chaos of the revolution. It's suppressed by German nationalists.
 - **1919** - Magnus Hirschfeld opens the Institute for Sexology in Berlin. He and his associates study queer identities and organize campaigns for equal rights for homosexuals and transgender people.
 - **1923** - The Nazis attempt a coup in Munich, the so-called Beer Hall Putsch.
 - **1928** - Nazis win less than 3% of the vote.
