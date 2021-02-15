@@ -51,3 +51,11 @@ This loss set the LGBT movement back by nearly 40 years until Stonewall. Luckily
 - **1994** - Paragraph 175 finally repealed
 - **2002** - The German government formally apologizes for the persecution of homosexuals by the Nazis
 - **2005** - The European parliament adopts a resolution on the Holocaust condemning the persecution of homosexuals
+
+## Sources
+
+* Marhoefer, Laurie. (2015). Sex and the Weimar Republic: German Homosexual Emancipation and the Rise of the Nazis. University of Toronto Press, Scholarly Publishing Division.
+* Whisnant, Clayton. (2016). Queer Identities and Politics in Germany: A History. Harrington Park Press, LLC.
+* Bauer, Heike. (2017). The Hirschfeld Archives: Violence, Death, and Modern Queer Culture. Temple University Press.
+* Stryker, Susan. (2017). Transgender History, second edition: The Roots of Today's Revolution. Seal Press.
+* Marhoefer, Laurie. (2019). Transgender Identities and the Police in Nazi Germany. YouTube. [https://www.youtube.com/watch?v=-NhJVtMGONk](https://www.youtube.com/watch?v=-NhJVtMGONk)
