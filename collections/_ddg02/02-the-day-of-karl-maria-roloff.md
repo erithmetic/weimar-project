@@ -98,7 +98,7 @@ Hanna was unwilling. She scolded him for being a fool. He should take everything
 
 He went. She looked after him through a crack in the door as long as she could. Then she waited &hellip;
 
-That evening he didn't come back. The next morning he wasn't in the shop, but didn't come until around noon. He gave no more than a silent shrug of his shoulders in answer to any of her questions. But last night had become his day. &mdash; &mdash; &mdash;
+That evening he didn't come back. The next morning he wasn't in the shop, and didn't come until around noon. He gave no more than a silent shrug of his shoulders in answer to any of her questions. But last night had become his day. &mdash; &mdash; &mdash;
 
 [^fn1]: Ger. _hochstöckelige_
 [^fn2]: Ger. _Ob man jetzt wohl schon tanzte, &mdash; draußen im Westen?_
