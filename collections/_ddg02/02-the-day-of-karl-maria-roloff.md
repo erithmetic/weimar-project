@@ -56,7 +56,7 @@ But that was the Day of Karl Maria Roloff:
 
 It was seven. "Wait at the door!" she said. He nodded and went ahead. Outside he leaned tiredly at the iron gate. Yes, today he'd tell her on the way home. 
 
-Finally she appeared. "Come, hold me under![^fn5]" she said. He did and shyly looked sideways at her.
+Finally she appeared. "Come, hold my hand![^fn5]" she said. He did and shyly looked sideways at her.
 
 "I have something to say to you, Hanna!" he managed to say quietly.
 
