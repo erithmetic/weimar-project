@@ -14,9 +14,9 @@ He was altogether terrified. His mother straightened out the dress and laid it d
 
 Karl Maria got up in his nineteen-year-old slimness, his long, white fingers began to organize everything nicely &mdash; &mdash; &mdash; just so, as it was before in the big cardboard box. What would he say when he had to bring everything back? All sorts of excuses rose to the surface &mdash; &mdash; he couldn't grasp any of them. Or should he blame his mother? That she brought it up? Surely she knew better about this affair!
 
-Did you already dance &mdash; out in the west? Oh, he knew the place pretty well. He was there for two years, working as a delivery boy[^fn2]. Then he was thrown out. Why else?
+Were they already dancing &mdash; out in the west[^fn2]? Oh, he knew the place pretty well. He was there for two years, working as a delivery boy[^fn3]. Then he was thrown out. Why else?
 
-He sat down next to the cardboard box and thought. Yeah, why had he been thrown out? &mdash; &mdash; &mdash; &mdash; &mdash; &mdash; 
+He sat down next to the cardboard box and thought. Yeah, why did they throw him out? &mdash; &mdash; &mdash; &mdash; &mdash; &mdash; 
 
 *
 
@@ -32,13 +32,13 @@ He was a delivery boy in a warehouse. It was quite easy for him to make close fr
 
 When he thinks about it today, he's surprised that he was able to rely on Hanna back then so quickly. It was all so obvious:
 
-She had a job below in the package room. She handed him the packages for him to deliver. She told him the recipients, usually scrawling the names in huge, barbaric letters on each little parcel. And then, once, when an especially heavy package had to be taken out &mdash; yes, that was it &mdash; she said, "take five[^fn3], I'll dump this on someone else!"
+She had a job below in the package room. She handed him the packages for him to deliver. She told him the recipients, usually scrawling the names in huge, barbaric letters on each little parcel. And then, once, when an especially heavy package had to be taken out &mdash; yes, that was it &mdash; she said, "take five[^fn4], I'll dump this on someone else!"
 
 Since that day they were clearly friends. She made the job comfortable and easy. Every now and then she'd give him a bar of chocolate or something else to munch on. A great sign of their relationship was Hanna's overwhelmingly secure demeanor towards Karl Maria. If she said: "do that," he did it; or: "don't do that," he left it alone. Yes, sometimes her ideas sounded too silly to him, like: "We're going to the movies tonight!" &mdash; or: "Tomorrow we're driving out to the Wannsee!" But then maybe it was all right! Or, maybe he should think about it. No, it's better that the thought had never occurred to him. So he rarely responded to her declarations.
 
 Their time together was really nice. Almost two good years. Until, of course, he got tired of it. On the day that should be his day.
 
-He could never forget the blissful moments when the radiant white of the silks spread before him. It hung like a fairy tale on the delicate scent of the women's clothes[^fn4]. From day to day the yearning grew stronger in him to float lightly like a spring butterfly in shimmering silk. 
+He could never forget the blissful moments when the radiant white of the silks spread before him. It hung like a fairy tale on the delicate scent of the women's clothes[^fn5]. From day to day the yearning grew stronger in him to float lightly like a spring butterfly in shimmering silk. 
 
 Oh, then he'd be beautiful. He, the delivery boy Karl Maria Roloff, the boy with the fine, feminine features! One time he asked a painter to whom he often brought canvas, "tell me, am I beautiful?"
 
@@ -56,7 +56,7 @@ But that was the Day of Karl Maria Roloff:
 
 It was seven. "Wait at the door!" she said. He nodded and went ahead. Outside he leaned tiredly at the iron gate. Yes, today he'd tell her on the way home. 
 
-Finally she appeared. "Come, hold my hand![^fn5]" she said. He did and shyly looked sideways at her.
+Finally she appeared. "Come, hold my hand![^fn6]" she said. He did and shyly looked sideways at her.
 
 "I have something to say to you, Hanna!" he managed to say quietly.
 
@@ -101,7 +101,8 @@ He went. She looked after him through a crack in the door as long as she could. 
 That evening he didn't come back. The next morning he wasn't in the shop, but didn't come until around noon. He gave no more than a silent shrug of his shoulders in answer to any of her questions. But last night had become his day. &mdash; &mdash; &mdash;
 
 [^fn1]: Ger. _hochstöckelige_
-[^fn2]: Ger. _Boy_
-[^fn3]: Ger. _Scher dich weg für fünf Minuten_
-[^fn4]: Ger. _Es hing wie ein Märchen an dem zarten Duft der Frauenkleider._
-[^fn5]: Ger. _Komm, faß mich unter!_
+[^fn2]: Ger. _Ob man jetzt wohl schon tanzte, &mdash; draußen im Westen?_
+[^fn3]: Ger. _Boy_
+[^fn4]: Ger. _Scher dich weg für fünf Minuten_
+[^fn5]: Ger. _Es hing wie ein Märchen an dem zarten Duft der Frauenkleider._
+[^fn6]: Ger. _Komm, faß mich unter!_
