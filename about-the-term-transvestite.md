@@ -36,7 +36,7 @@ That is, focusing on outer appearance obscures the person's inner drive led by t
 
 ## Eonism
 
-English sexologist Henry Havelock Ellis used the word _eonism_ to describe all cross-dressing as an act of emulation based on neurotic tendencies. He knew of Hirschfeld's work but disagreed with his analysis.[^fn3]
+English sexologist Henry Havelock Ellis used the word _eonism_ to describe all cross-dressing as an act of emulation based on neurotic tendencies. He knew of Hirschfeld's work but disagreed with his analysis.
 
 ## Transsexual
 
@@ -52,12 +52,11 @@ The first appearance of _transgender_ in the 1960s had the same meaning as _tran
 
 ## Transgender - the modern definition
 
-In the 1990s, _transgender_ was reclaimed by others as an umbrella term for all of the aforementioned identities and behaviors, as well as non-binary identities. Some people still use the terms _transsexual_, _transvestite_, and _cross-dresser_ for themselves, but the majority of people today use _transgedner_ as an umbrella term.
+In the 1990s, _transgender_ was reclaimed by others as an umbrella term for all of the aforementioned identities and behaviors, as well as non-binary identities. Some people still use the terms _transsexual_, _transvestite_, and _cross-dresser_ for themselves, but the majority of people today use _transgender_ as an umbrella term.
 
 ## Terminology in this site's translations
 
-Because Hirschfeld's definition of _transvestite_ most closely matches the modern definition of _transgender_ in the sense of one who's gender identity doesn't match their birth-assigned gender, any time this term is encountered in the original soure it is translated to _transgender_. This is to eliminate confusion with modern interpretations of the term _transvestite_, as well as to highlight how well Hirschfeld (if not also many German trans people) understood biological sex and gender identity.
+Because Hirschfeld's definition of _transvestite_ most closely matches the modern definition of _transgender_ in the sense of one who's gender identity doesn't match their birth-assigned gender, any time this term is encountered in the original soure it is translated to _transgender_. This is to eliminate confusion with modern interpretations of the term _transvestite_, as well as to highlight how well Hirschfeld (if not also many German trans individuals) understood biological sex and gender identity.
 
 [^fn1]: Ger. _Die Transvestiten_. The original German version can be found at the [Digital Transgender Archive](https://www.digitaltransgenderarchive.net/news/2016-08-die-transvestiten-sexology-and-pivotal-moments-in-trans-history).
 [^fn2]: It's important to note that Hirschfeld's study of other cultures was problematic. His research relied on the oppressive imperial German colonial projects in Africa. As a eugenicist, he also seemed to tacitly acknowledge the racist ideas of the time that non-white people were inherently inferior. See _The Hirschfeld Archives_ by Heike Bauer.
-[^fn3]: Typical British transphobia ;)
