@@ -28,8 +28,11 @@ This loss set the LGBT movement back by nearly 40 years until Stonewall. Luckily
 ## Timeline:
 
 - **May 1871** - The newly established German Empire enacts Paragraph 175 of the German Criminal Code, which outlaws homosexual acts.
+- **1910** - Magnus Hirschfeld, a gay physician and sexologist, publishes _Die Transvestiten_, a seminal work that scientifically describes what we now call transgender individuals.
 - **Nov 1918** - Germany forms the "Weimar Republic" to replace the German Empire which was defeated in World War I. It is Germany's first democratic government. Immediately following, The German state of Prussia (which includes Berlin) choses not to enforce Paragraph 175. Prussia was the center of progressive politics in Germany.
-- **1919** - Magnus Hirschfeld, a gay physician and sexologist, opens the Institute for Sexology in Berlin. He studies homoesexuality and coins the term "transvestite" to describe transgender men and women. He argues publicly for equal rights for gays and transgender people.
+- **Nov 1918 - Feb 1919** - The short-lived, communist People's State of Bavaria is formed amid the chaos of the revolution. It's suppressed by German nationalists.
+- **1919** - Magnus Hirschfeld opens the Institute for Sexology in Berlin. He and his associates study queer identities and organize campaigns for equal rights for homosexuals and transgender people.
+- **1923** - The Nazis attempt a coup in Munich, the so-called Beer Hall Putsch.
 - **1928** - Nazis win less than 3% of the vote.
 - **1929** - A German parliament committee votes to repeal Paragraph 175. However, the repeal was never actually implemented due to the rise of the Nazis.
 - **October 1929** - Wall Street crash, the Great Depression begins
@@ -38,15 +41,15 @@ This loss set the LGBT movement back by nearly 40 years until Stonewall. Luckily
 - **February 1931** - Issue 3 of [The Third Sex](/das-dritte-geschlecht) published.
 - **June 1931** - Dora Richter, a resident at Hirschfeld's Institute, undergoes the first known transgender vaginoplasty in Berlin. She is followed that year by Lilli Elbe.
 - **July 1931** - Issue 4 of [The Third Sex](/das-dritte-geschlecht) published.
-- **1932** - The height of Weimar Germany's queer culture. Berlin had at least 5 clubs dedicated to trans customers.
+- **1932** - The height of Weimar Germany's queer culture. Berlin had at least 5 clubs catering to trans customers.
 - **May 1932** - The final issue, 5, of [The Third Sex](/das-dritte-geschlecht) published.
 - **June 1932** - German artists and authors publish an "Urgent Call for Unity" to vote for the socialist and communist parties to prevent election of Nazi politicians.
 - **July 1932** - Nazis win 37% of the vote. Anti-democratic, conservative chancellor Franz von Papen uses emergency powers to dissolve Prussia's state government after riots and streetfighting between communists and Nazi paramilitary (SA) soldiers. The new Prussian government renews censorship and crackdowns on vice. Gay culture goes underground.
 - **November 1932** - Nazis win 33% of the vote.
-- **January 1933** - Hitler is named chancellor with the backing of conservative, monarchical, and corporate interests
-- **February 1933** - As the Nazi party's prominent gay official, Ernst Röhm, loses power, Nazis outlaw sex publications, raid gay clubs, and ban organized gatherings of gays.
+- **January 1933** - Hitler is named chancellor with the backing of conservative, monarchical, and corporate interests.
+- **February 1933** - Ernst Röhm, leader of the now-vast Nazi paramilitary (SA), is assassinated by the SS in order to appease monarchical, military, and corporate interests. He is denounced for his public homosexuality.
 - **March 1933** - The Enabling Act is passed, marking the transition to Germany's Nazi era. First concentration camps constructed. Kurt Hiller, the head of Hirschfeld's Institute, is sent to a camp. The government uses the 1932 dissolution of Prussias state government as a model to take over other state governments.
-- **May 1933** - A Nazi student group raided Hirschfeld's Institute. Books and journals were hauled out and burned. Dora Richter is thought to have died in this attack.
+- **May 1933** - A Nazi student group raids Hirschfeld's Institute. Books and journals were hauled out and burned. Dora Richter is thought to have died in this attack.
 - **1933-1945** - An estimated 100,000 people were arrested, 50,000 sentenced as homosexuals. Approximately 5,000 to 15,000 were incarcerated in Nazi concentration camps. Up to 60% may have died.
 - **1994** - Paragraph 175 finally repealed
 - **2002** - The German government formally apologizes for the persecution of homosexuals by the Nazis
