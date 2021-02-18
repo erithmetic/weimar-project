@@ -1,10 +1,8 @@
 ---
-layout: default
+layout: page
 title: 'About the term "Transvestite"'
 permalink: "/about-the-term-transvestite/"
 ---
-
-# About the term "Transvestite"
 
 The word "Transvestite" has held and continues to hold several different meanings throughout history. There have also been other words to describe a group of identities and behaviors of people in relation to gender presentation and identity. It's important to clarify what people in interwar Germany were talking about when they used words like "transvestite" and how it has been translated on this site.
 

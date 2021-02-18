@@ -1,10 +1,8 @@
 ---
-layout: default
+layout: page
 title: 'About'
 permalink: "/about/"
 ---
-
-# About
 
 This is a COVID-19 project and labor of love by Erica Kastner. This site does not sell any data or profit in any way. All content on this site is licensed under the [Creative Commons Attribution 4.0 International](https://creativecommons.org/licenses/by/4.0/) license. You are free to share or adapt content as long as you attribute Erica Kastner as the author.
 

@@ -1,10 +1,8 @@
 ---
-layout: default
+layout: page
 title: "Background on the Weimar Republic"
 permalink: "/background/"
 ---
-
-# Background
 
 In many ways Germany was quite conservative leading up to World War II. It briefly flirted with democracy in 1848, but it remained an authoritarian, militaristic empire under the power of the Kaisers combined with the strong influence of the conservative Christian churches. Scientific inquiry and industrial modernization was strong in Germany, however, which led to the first thinkers in the area of sexology. Throughout the 1800s, scientists started to look at sexuality and gender through a scientific lens in addition to the emerging conservative viewpoints that queerness was a mental disorder that could be spread.
 

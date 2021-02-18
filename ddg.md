@@ -1,10 +1,8 @@
 ---
-layout: default
+layout: page
 title: "The Third Sex"
 permalink: "/das-dritte-geschlecht/"
 ---
-
-# The Third Sex
 
 <div class="toc">
   <h2>Table of Contents</h2>

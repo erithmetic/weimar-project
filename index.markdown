@@ -1,9 +1,7 @@
 ---
-layout: default
+layout: page
 title: "The Weimar Project"
 ---
-
-# The Weimar Project
 
 When many people think of LGBT history, they may look back to the Stonewall riots, or possibly the work of the Mattachine Society in the United States as the beginning of the fight for equality. However, a significant piece of western LGBT history began in Germany. First in the mid to late 1800s, as researchers studied transgender and homosexual identities through a scientific lens, then later in the period between the world wars as Germany's LGBT community found more freedom to live out of the closet. 
 
