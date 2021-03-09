@@ -34,3 +34,7 @@ The purpose of this project is to give a voice to Weimar Germany's queer people,
     </li>
   </ul>
 </div>
+
+## Updates
+
+**2021-03-08**: This site, unfinished as it is, has received a great deal of attention, and I've been reading some great feedback. I've decided to dial back some of the modernization of the language, but still use "transgender" where the use of "transvestite" clearly implies gender identity rather than the simple act of "cross-dressing." This is for two reasons. One, I want to emphasize to the casual reader that this idea of "transgender" isn't new. Two, it's honestly really confusing to read "transvestite man" and know they're talking about someone who identifies as a woman. The old/original term also robs the subject of their true identity.
