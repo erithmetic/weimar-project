@@ -43,3 +43,4 @@ This site, unfinished as it is, has received a great deal of attention, and I've
 
 Added:
 * [One Star](/ddg02/05-a-star/)
+* [Thoughts of a Heterosexual Woman on Transgender People](/ddg02/06-thoughts-of-a-heterosexual-woman-on-trans-people/)
