@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "The Transvestites!"
+title: "The Transvestites! (unfinished)"
 author: Dr. Wegner
 ---
 

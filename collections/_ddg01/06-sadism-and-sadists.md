@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "Sadism and Sadists"
+title: "Sadism and Sadists (unfinished)"
 author: Dr. E. E. Schweizer
 ---
 
