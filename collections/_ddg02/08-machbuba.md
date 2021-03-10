@@ -1,7 +1,7 @@
 ---
 layout: poem
 title: "Machbuba"
-author: S. Engler
+author: Marie-Luise von Bern
 ---
 
 
