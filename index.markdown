@@ -9,8 +9,22 @@ In this interwar period Germany had transitioned from an authoritarian monarchy 
 
 The purpose of this project is to give a voice to Weimar Germany's queer people, especially the transgender community. This is a memorial to the many who were murdered, incarcerated, or forced underground by fascist oppressors.
 
+## Translated collections
+
+
 <div class="toc">
-  <h2>Information and translated collections</h2>
+  <ul class="texts">
+    <li class="text-title">
+      <a href="/das-dritte-geschlecht">
+        The Third Sex (<i>Das 3. Geschlecht</i>)
+      </a> - a magazine for and by the trans community
+    </li>
+  </ul>
+</div>
+
+## Further information
+
+<div class="toc">
   <ul class="texts">
     <li class="text-title">
       <a href="/background">
@@ -23,11 +37,6 @@ The purpose of this project is to give a voice to Weimar Germany's queer people,
       </a>
     </li>
     <li class="text-title">
-      <a href="/das-dritte-geschlecht">
-        The Third Sex (<i>Das 3. Geschlecht</i>)
-      </a> - a magazine for and by the trans community
-    </li>
-    <li class="text-title">
       <a href="/about">
         About this site
       </a>
@@ -36,6 +45,12 @@ The purpose of this project is to give a voice to Weimar Germany's queer people,
 </div>
 
 ## Updates
+
+### 2021-03-09
+
+Added:
+* [Machbuba](/ddg02/08-machbuba/)
+* [Transgender-Marriage](/ddg02/09-transgender-marriage/)
 
 ### 2021-03-08
 
