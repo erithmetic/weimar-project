@@ -62,5 +62,8 @@ collections:
   ddg02:
     issue: "Issue 2 (September 1930)"
     output: true
+  ddg03:
+    issue: "Issue 3 (February 1931)"
+    output: true
 
 google_analytics: UA-172515450-1

@@ -30,6 +30,18 @@ permalink: "/das-dritte-geschlecht/"
     {% endfor %}
     </ul>
   </ul>
+  <ul>
+    Issue 3 (February 1931)
+    <ul class="texts">
+    {% for ddg in site.ddg03 %}
+      <li class="text-title">
+        <a href="{{ ddg.baseurl }}{{ ddg.url }}">
+          {{ ddg.title }}
+        </a>
+      </li>
+    {% endfor %}
+    </ul>
+  </ul>
 </div>
 
 From 1930 to 1932, in the final years of the German "Weimar" Republic, a magazine was published called, "The Third Sex," subtitled as "The Transvestites" (in German, _Das 3. Geschlecht[^fn1] &mdash; Die Transvestiten_). This was the first known magazine to be directly marketed towards what we would now call transgender people (the word _transvestite_ at that time [more closely matched what we call _transgender_](/about-the-term-transvestite)). This magazine features stories by trans people who were newly experiencing life as their true gender identity in interwar Germany's increasingly progressive culture. Some were openly trans but many still lived in the closet. This magazine provided a platform to share experiences and dream of a life of being fully authentic.
