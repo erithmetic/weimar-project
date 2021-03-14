@@ -4,9 +4,10 @@ title: "Women in Men's Clothes"
 author: Essener Allgemeine Zeitung, Essen
 ---
 
+## Forgotten champions of emancipation
+
 [The Third Sex](/das-dritte-geschlecht/) Issue 3, article 1 (February 1931)
 
-Forgotten champions of emancipation
 
 If today a woman has to fight in court for the right to wear men's clothing that is more appropriate for the exercise of her profession, as happened recently in Paris, one wonders why such a thing is still necessary today. Because today women have so much equality with men in almost all civilized societies that masculine extremists[fn1] claim that the emancipation of men is inevitably necessary. But how young is this equality for women! Less than a hundred years ago, women who dared to strive for emancipation were showered with ridicule and scorn. In September 1846, for example, a note went through the German newspapers under the headline, "The wrong world:"
 
@@ -16,7 +17,7 @@ Of course, the addition about marriage is a malicious invention because even few
 
 But this long&ndash;forgotten Ms. Aston wasn't the only extreme suffragette of her time. Because a few weeks later, the German newspapers reported a second case, which is also opened with malicious lies. It says:
 
-> The well&ndash;known Madame Lehmann, who delighted the Königsbergers with her public appearance in men's clothing, smoking cigars, etc., has been forbidden by the police under threat of punishment from appearing in such abnormal costume because this could result in street crowds and the like. Madame Lehmann then submitted a complaint to the government against the police chief Lauterbach. In it, she ascribes both the four months' imprisonment that she endured because of her alleged participation in political machinations and the measure currently taken against her because of wearing trousers to Mr. Lauterbach's personal animosity against her, connected with previous circumstances. The Government asks to protect them against further interference by this Lord in their human rights. The complaint aroused varied interest because of its naive wording and because of the persons concerned and is circulated in many copies.
+> The well&ndash;known Madame Lehmann, who delighted the Königsbergers with her public appearance in men's clothing, smoking cigars, etc., has been forbidden by the police under threat of punishment from appearing in such abnormal costume because this could result in street crowds and the like. Madame Lehmann then submitted a complaint to the government against the police chief Lauterbach. In it, she ascribes both the four months' imprisonment that she endured because of her alleged participation in political machinations and the measure currently taken against her because of wearing trousers to Mr. Lauterbach's personal animosity against her, connected with previous circumstances. The Government asks to protect her against further interference by this Lord in her human rights. The complaint aroused varied interest because of its naive wording and because of the persons concerned and is circulated in many copies.
 
 So back then in Königsberg people made fun of this woman, who is so controversial for her fight for her own human rights &mdash; the phrase reveals the nearness of the great revolution!
 
