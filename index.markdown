@@ -46,6 +46,10 @@ The purpose of this project is to give a voice to Weimar Germany's queer people,
 
 ## Updates
 
+### 2021-04-21
+
+Added several articles from Issue 3 of <a href="/das-dritte-geschlecht">The Third Sex</a>.
+
 ### 2021-03-09
 
 Added:

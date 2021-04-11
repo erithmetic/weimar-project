@@ -34,7 +34,7 @@ Up until three years ago everything was still within tolerable limits, either al
 
 Then a turning point of eminent importance occurred.
 
-Through a newspaper advertisement, my friend met a transvestite who was very advanced in this realm. He had a large selection of elegant wardrobes and everything else a perfect lady has. This new friend was experienced in having gone out in public as a lady on several occasions.
+Through a newspaper advertisement, my friend met a trans woman who was very advanced in this realm. She had a large selection of elegant wardrobes and everything else a perfect lady has. This new friend was experienced in having gone out in public as a lady on several occasions.
 
 I noticed immediately that my frugality was no longer enough.
 
