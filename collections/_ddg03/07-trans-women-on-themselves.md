@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "Trans women on themselves"
+title: "Trans women's self-awareness"
 author: Anonymous
 ---
 
