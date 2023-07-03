@@ -4,7 +4,7 @@ title: "The Other Side"
 author: Mara Ruth
 ---
 
-_A Transgender Tale_
+_A Transvestite Tale_
 
 [The Third Sex](/das-dritte-geschlecht/) Issue 1, article 4 (May 1930)
 
@@ -22,11 +22,11 @@ Just then her husband opened the door, and when he stepped into the light she sa
 
 "A letter from Rolf is sitting on your writing desk &mdash;" she smiled strangely and forlornly, the way one smiles with the joy of a beloved child. Just then a glow flew out of the Councilor's deeply potted, dark blue eyes, and he sprang up.
 
-"You'll allow me? But first I have to know &mdash;" 
+"You'll allow me? But first I have to know &mdash;"
 
 For a moment she clasped her hands tightly in her lap and looked at him, that tall, slender man whose wonderful passion that only she, she alone knew and was allowed to know. Perhaps he sensed in his sensitivity, which he usually knew how to hide quite well, that underneath it all she merely tolerated it. Yet there was no closer friendship, no more heartfelt attraction than what Hellmuth Berndt and Olga had with each other.
 
-The maid passed by as she cleaned the room. As soon as she was a distance away, Hellmuth said: 
+The maid passed by as she cleaned the room. As soon as she was a distance away, Hellmuth said:
 
 "Just think, tomorrow is Rolf's birthday &mdash; I had definitely forgotten about it &mdash; he suspected I would, that dear boy, that's why he wrote me again, it'll be a very small party &mdash; only his most intimate friends &mdash; I'll take the early train."
 
@@ -82,7 +82,7 @@ As if under obligation, he bowed his head to his counterpart and extended his ha
 
 He rose to say goodbye to his host. The consul took his cigar bag out of his tailcoat and held it out to Berndt.
 
-"You didn't smoke at all, my dear little Councilor &mdash; here, my extra strong ones &mdash; only for connoisseurs &mdash; smoke another one to quit!" he said, "and we'll talk more about it, won't we?" With her strange, cool smile, Olga looked back at the stout man. 
+"You didn't smoke at all, my dear little Councilor &mdash; here, my extra strong ones &mdash; only for connoisseurs &mdash; smoke another one to quit!" he said, "and we'll talk more about it, won't we?" With her strange, cool smile, Olga looked back at the stout man.
 
 "You would be the first to tear him from my throne, you smug and arrogant prick!" she thought and turned to her husband.
 

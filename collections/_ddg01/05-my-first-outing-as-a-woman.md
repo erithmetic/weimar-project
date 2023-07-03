@@ -4,7 +4,7 @@ title: "My First Outing as a Woman"
 author: Hans Hannah Berg
 ---
 
-_The Adventures of a Trans Woman_
+_The Adventures of a Transvestite_
 
 [The Third Sex](/das-dritte-geschlecht/) Issue 1, article 5 (May 1930)
 

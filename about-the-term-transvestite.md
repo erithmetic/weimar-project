@@ -54,7 +54,7 @@ In the 1990s, _transgender_ was reclaimed by others as an umbrella term for all 
 
 ## Terminology in this site's translations
 
-Because Hirschfeld's definition of _transvestite_ most closely matches the modern definition of _transgender_ in the sense of one who's gender identity doesn't match their birth-assigned gender, any time this term is encountered in the original soure it is translated to _transgender_. This is to eliminate confusion with modern interpretations of the term _transvestite_, as well as to highlight how well Hirschfeld (if not also many German trans individuals) understood biological sex and gender identity.
+This site uses the same term "transvestite" as used in the sources with the reminder that this term was much more broadly used then as it is today.
 
 [^fn1]: Ger. _Die Transvestiten_. The original German version can be found at the [Digital Transgender Archive](https://www.digitaltransgenderarchive.net/news/2016-08-die-transvestiten-sexology-and-pivotal-moments-in-trans-history).
 [^fn2]: It's important to note that Hirschfeld's study of other cultures was problematic. His research relied on the oppressive imperial German colonial projects in Africa. As a eugenicist, he also seemed to tacitly acknowledge the racist ideas of the time that non-white people were inherently inferior. See _The Hirschfeld Archives_ by Heike Bauer.
