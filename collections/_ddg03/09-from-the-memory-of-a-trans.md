@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "From the memory of a transvestite"
+title: "From the Memory of a Transvestite"
 author: Friedel Werner
 ---
 

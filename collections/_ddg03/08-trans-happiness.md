@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "A happy transvestite"
+title: "A Happy Transvestite"
 author: Gerda K.
 ---
 

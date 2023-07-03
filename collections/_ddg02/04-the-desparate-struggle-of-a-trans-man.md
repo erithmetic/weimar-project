@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "The Desparate Struggle of a Transvestite Woman"
+title: "The Desparate Struggle of a Female Transvestite"
 author: St. A.
 ---
 
