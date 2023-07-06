@@ -18,5 +18,5 @@ Issue 3: 9 out of 13 articles translated
 
 Issue 4: 0 out of 8 articles translated
 
-Issue 4: 0 out of 9 articles translated
+Issue 5: 0 out of 9 articles translated
 
