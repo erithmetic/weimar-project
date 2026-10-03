@@ -1,0 +1,2 @@
+setup:
+	rbenv install
